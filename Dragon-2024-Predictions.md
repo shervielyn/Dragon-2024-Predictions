@@ -1,7 +1,7 @@
 # Dragon-2024-predictions
 
 #### Dragon
-![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/e8415743-5e20-4d11-912f-f7d8c2ca10ce_dd085ae3.jpg)
+![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/ad9ace7b-60f6-4ccf-9246-68d5a16fad3f_1a2ba535.jpg)
 
 
 - _**Lucky numbers:**_ 2, 7;  
